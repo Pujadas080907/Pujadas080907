@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **pujadas080907@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1tkacxawNignXB-lzscGnLD8HH4SMguuf/view?usp=sharing](https://drive.google.com/file/d/1tkacxawNignXB-lzscGnLD8HH4SMguuf/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1UsNMi06ai4L6nyhZA46WyqHp0MQF01F6/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
